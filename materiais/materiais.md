@@ -21,3 +21,8 @@
 
 ### **Documento para apresentação**
 [Link da Apresentação 📊](https://notebook.google.com/notebook/6da4b8c5-618d-4957-b2d2-e651bc9a1fea/artifact/5d238632-295b-4b6f-b579-fa376529915d?utm_source=nlm_web_share&utm_medium=google_oo&utm_campaign=art_share_1&utm_content=&utm_smc=nlm_web_share_google_oo_art_share_1/)
+
+---
+
+### **Guia de Estudos**
+[Link do Guia de Estudos 📚](https://notebook.google.com/notebook/6da4b8c5-618d-4957-b2d2-e651bc9a1fea/artifact/94691012-bb9b-4338-bf58-f43bf7d42f02?utm_source=nlm_web_share&utm_medium=google_oo&utm_campaign=art_share_1&utm_content=&utm_smc=nlm_web_share_google_oo_art_share_1/)
