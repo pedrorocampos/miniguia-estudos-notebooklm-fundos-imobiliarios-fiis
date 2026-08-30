@@ -1,10 +1,10 @@
 ## **Link para os documentos**
-### **Carteira do zero**
+### **Vídeo - Carteira do Zero**
 [Link do Vídeo 🎥](https://photos.app.goo.gl/K1C65TqSFRgfW98y7/)
 
 ---
 
-### **Guia Completo dos FIIs**
+### **Vídeo - Guia Completo dos FIIs**
 [Link do Vídeo 🎥](https://photos.app.goo.gl/qkTAoXDdbTSANcVY8/)
 
 ---
